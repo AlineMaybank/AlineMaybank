@@ -1,6 +1,7 @@
 ## Aline Maybank
 
 🌍Incoming MD/PhD in Environmental Health at the University of British Columbia⚕️
+
 🔭 Environmental Public Health Graduate from the Yale School of Public Health 🌱
 
 #
