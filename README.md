@@ -16,6 +16,7 @@
 🛰️ Team Lead and Graduate Student Researcher, NASA DEVELOP Program (2025)
 
 🌍 Climate Epidemiology Fellow, Yale Center on Climate Change and Health (2023-25)
+
 and more!
 
 
