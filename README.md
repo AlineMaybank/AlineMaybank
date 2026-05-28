@@ -7,7 +7,7 @@
 ⚕️🔬 BSc'23 in Medical Sciences and Environmental Science + Integrated Sci, Dalhousie University
 
 #
-Previous work experiences:
+#Previous work experiences:
 
 📈 Environmental Health Research Associate, George Washington University - Milken Institute of Public Health (2025-26)
 
