@@ -8,6 +8,7 @@
 
 #
 Previous work experiences:
+
 📈 Environmental Health Research Associate, George Washington University - Milken Institute of Public Health (2025-26)
 
 💻 Geospatial Researcher, Yale Center for Geospatial Solutions (2024-25)
