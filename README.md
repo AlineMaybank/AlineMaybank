@@ -9,8 +9,11 @@
 #
 Previous work experiences:
 📈 Environmental Health Research Associate, George Washington University - Milken Institute of Public Health (2025-26)
+
 💻 Geospatial Researcher, Yale Center for Geospatial Solutions (2024-25)
+
 🛰️ Team Lead and Graduate Student Researcher, NASA DEVELOP Program (2025)
+
 🌍 Climate Epidemiology Fellow, Yale Center on Climate Change and Health (2023-25)
 and more!
 
