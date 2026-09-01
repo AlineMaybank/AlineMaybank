@@ -1,6 +1,6 @@
 ## Aline Maybank
 
-🌱🏥 Incoming MD/PhD in Environmental Health, University of British Columbia
+🌱🏥 MD/PhD in Environmental Health, University of British Columbia
 
 🌍🛰️ MPH'25 in Environmental Health and Climate Change, Yale School of Public Health
 
